@@ -1,5 +1,5 @@
 - 👋 Sup? I’m @kotyauditore
-- 👀 I’m interested in Bitcoin and I'm in it dor the tech,
+- 👀 I’m interested in Bitcoin and I'm in it for the tech,
 - 📫 How to reach me: on X @Koty_Auditore
 - Nostr: kotyauditore@iris.to
 
